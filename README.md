@@ -1,16 +1,37 @@
-## Hi there 👋
+# ꧁ঔৣ☬✞Guten Tag✞☬ঔৣ꧂
 
-<!--
-**Fink-fink/Fink-fink** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img src="https://cdn.phototourl.com/free/2026-08-27-93b2c68b-2ff3-4fda-a7ea-88a9fd62441b.gif" width="1000">
+<figure>
+<p align="center"> ᡕᠵデᡁ᠊╾━ </p> 
+  
+<img src="https://cdn.phototourl.com/free/2026-08-27-0fcab17b-8565-4068-aec4-30e91521b867.jpg" width="1000">
 
-Here are some ideas to get you started:
+![]()
+![]()
+![]()
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+---
+
+## 
+
+---
+
+## 📦 
+
+|  |  | |
+|----------|----------|------------|
+|  | |  |
+|  | |  |
+|  | |  |
+
+---
+
+## 🎵 
+
+1.
+
+---
+<img src="https://cdn.corenexis.com/f/Ohaismep1V2.gif" width="1000">
+
+
+---
